@@ -1,1 +1,0 @@
-# VladimirGarcia-Calculadora-De-Areas
